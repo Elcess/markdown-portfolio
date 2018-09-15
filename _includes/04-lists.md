@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* Palm trees
+* Walking on the beach
+* Knitting
